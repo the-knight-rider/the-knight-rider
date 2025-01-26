@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **adityamshimpi@gmail.com**
 
-- 📄 My  <a href="https://drive.google.com/file/d/1_Dw22j88k2jQrFeyW6FQ-Kd8sQtiPkzo/view">Resume</a>
+- 📄 My  <a href="https://drive.google.com/file/d/1XJK04yx0BpNJy3IAPIoxBLLPHEyuiItA/view">Resume</a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
